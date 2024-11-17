@@ -1,4 +1,4 @@
-<img src="https://myreadme.vercel.app/api/embed/trash4468?panels=userstatistics,toprepositories,toplanguages,commitgraph" alt="reimaginedreadme" />
+Four Letters 2 Numbers Bitch Grey 59 🤞
 
 # 💻 IDE:
 
