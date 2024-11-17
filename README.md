@@ -1,4 +1,4 @@
-Four Letters 2 Numbers Bitch Grey 59 🤞
+Four Letters Two Numbers Bitch Grey 59 🤞
 
 # 💻 IDE:
 
